@@ -1,0 +1,1 @@
+# LogicaDeProgramacao-PortugolStudio-Manzano
